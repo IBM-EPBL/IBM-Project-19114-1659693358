@@ -6,6 +6,8 @@ TEAM ID : PNT2022TMID27405
 
 TINKERCAD : https://www.tinkercad.com/things/kkYnXUZn4Ym?sharecode=NWZw8MBXLpI07LfLTYySuL_pMmykpV-Ae18XrCs7Er0
 
+SIMULATION VIDEO : https://clipchamp.com/watch/DbRwIomysZm
+
 TEAM MEMBERS : 
 
 1 V.P.P.GAURAV
